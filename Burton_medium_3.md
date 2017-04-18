@@ -5,7 +5,7 @@ I wasn’t really sure what I wanted to write about for this piece. I mean, I ha
 
 But what could I write about education when it seems everything’s already been said? Don’t we talk in circles enough these days?
 
-I stumbled upon a [Prince Ea](http://princeea.com/) video I’ve seen before called [“I JUST SUED THE SCHOOL SYSTEM !!!”](https://www.youtube.com/watch?v=dqTTojTija8) For those who don’t know, Prince Ea is a spoken-word poet whose work in multimedia presentation merging poetry and video have gained a lot of attention to browsers of the Internet in the last several years. He’s big on making these stand-out pieces that really grip you.
+I took to the Internet and stumbled upon a [Prince Ea](http://princeea.com/) video I’ve seen before called [“I JUST SUED THE SCHOOL SYSTEM !!!”](https://www.youtube.com/watch?v=dqTTojTija8) For those who don’t know, Prince Ea is a spoken-word poet whose work in multimedia presentation merging poetry and video have gained a lot of attention to browsers of the Internet in the last several years. He’s big on making these stand-out pieces that really grip you.
 
 The basic idea of his piece is that we expect the same of all students, even the “fish” who are expected to “climb a tree,” in the outdated system of education in United States that we’ve had for decades. Whether we think the public school system is outdated or not, I think we can all agree that at some point, we’ve felt this whole fish-tree thing: “I’m never going to use this kind of math in my future career” is probably the most common complaint. And just for the record, I haven’t used basically anything from my later-high school math classes in the entire 4-6 years since I’ve learned it (and forgotten it—sorry, Mrs. Delpercio).
 
