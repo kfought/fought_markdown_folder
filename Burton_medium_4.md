@@ -1,5 +1,5 @@
-##The Next Town Over
-####by Kaitlyn Burton
+## The Next Town Over
+#### by Kaitlyn Burton
 
 I lived my most formative adolescent years in a little town called [Blacksburg](https://www.mapquest.com/us/va/blacksburg-282039212), in Southwest Virginia. Most of you won’t know where that is until I say two keywords: Virginia Tech.
 
