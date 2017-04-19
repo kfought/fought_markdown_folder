@@ -1,15 +1,15 @@
 ## Equal Schooling in the United States of America
 #### by Kaitlyn Burton
 
-I wasn’t really sure what I wanted to write about for this piece. I mean, I have to write it because it’s for a university class, and I have to write it on education in America, specifically lower-income education, because that’s what my group’s focus is on.
+I wasn’t really sure what I wanted to write about for this post. I mean, I have to write it because it’s for a university class, and I have to write it on education in America, specifically lower-income education, because that’s what my group’s focus is on.
 
 But what could I write about education when it seems everything’s already been said? Don’t we talk in circles enough these days?
 
-I took to the Internet and stumbled upon a [Prince Ea](http://princeea.com/) video I’ve seen before called [“I JUST SUED THE SCHOOL SYSTEM !!!”](https://www.youtube.com/watch?v=dqTTojTija8) For those who don’t know, Prince Ea is a spoken-word poet whose work in multimedia presentation merging poetry and video have gained a lot of attention to browsers of the Internet in the last several years. He’s big on making these stand-out pieces that really grip you.
+I took to the Internet and stumbled upon a [Prince Ea](http://princeea.com/) video I’ve seen before called [“I JUST SUED THE SCHOOL SYSTEM !!!”](https://www.youtube.com/watch?v=dqTTojTija8) For those who don’t know, Prince Ea is a spoken-word poet whose work in multimedia poetry and video have gained a lot of attention to browsers of the Internet in the last several years. He’s big on making stand-out pieces that really grip the viewer.
 
-The basic idea of his piece is that we expect the same of all students, even the “fish” who are expected to “climb a tree,” in the outdated system of education in United States that we’ve had for decades. Whether we think the public school system is outdated or not, I think we can all agree that at some point, we’ve felt this whole fish-tree thing: “I’m never going to use this kind of math in my future career” is probably the most common complaint. And just for the record, I haven’t used basically anything from my later-high school math classes in the entire 4-6 years since I’ve learned it (and forgotten it—sorry, Mrs. Delpercio).
+The basic idea of his piece is that we expect the same of all students, even the “fish” who are expected to “climb a tree,” in the outdated system of American education. Whether we think the public school system is outdated or not, I think we can all agree that at some point, we’ve felt this whole fish-tree thing: “I’m never going to use this kind of math in my future career” as probably the most common complaint. And just for the record, I haven’t used basically anything from my later-high school math classes in the entire 4-6 years since I’ve learned it (and forgotten it—sorry, Mrs. Delpercio).
 
-So then Price Ea mentions some other school systems he says are doing education so much better than us—one of these being [Finland](http://www.smithsonianmag.com/innovation/why-are-finlands-schools-successful-49859555/).
+Price Ea mentions some other school systems he says are doing education so much better than us—one of these being [Finland](http://www.smithsonianmag.com/innovation/why-are-finlands-schools-successful-49859555/).
 
 Apparently, Finland has some kick-butt schools and an impressive high school graduation rate—93% to our 75.5%.  They have zero government-mandated standardized tests. And their overall motto for teaching future generations is “whatever it takes.” In at least one school, they give students 15 minutes of outdoor play in between every lesson, because “play is important.”
 
