@@ -1,5 +1,5 @@
-# Equal Schooling in the United States of America
-## by Kaitlyn Burton
+## Equal Schooling in the United States of America
+#### by Kaitlyn Burton
 
 I wasn’t really sure what I wanted to write about for this piece. I mean, I have to write it because it’s for a university class, and I have to write it on education in America, specifically lower-income education, because that’s what my group’s focus is on.
 
