@@ -1,9 +1,9 @@
 ## Inside Knowledge of a Middle School Guidance Counselor
 #### An interview and thought piece by Kaitlyn Burton
 
-I had the pleasure of sitting down with Cindy Martin, one of the guidance counselors at [Christiansburg Middle School](http://cms.mcps.org/) in Christiansburg, Virginia, who was my supervisor and mentor when I tutored at CMS a few years ago. 
+I had the pleasure of sitting down with Cindy Martin, one of the guidance counselors at [Christiansburg Middle School](http://cms.mcps.org/) in Christiansburg, Virginia, who was my supervisor and mentor when I tutored at CMS a few years ago.
 
-For another look at my experience there, check out my other blog post, [“To the Girl I Tutored at the Middle School”]().
+For another look at my experience there, check out my other blog post, [“To the Girl I Tutored at the Middle School”](https://medium.com/@embarkwebsite/to-the-girl-i-tutored-at-the-middle-school-ee2c42cb02b5).
 
 Cindy has worked at CMS for 6 years, and has basically seen it all. A normal workload, for her, may consist of maintaining legal documents for children needing accommodations, meeting with troubled and academically-behind children or children from unstable family situations, referring kids to counseling, planning the anti-bullying program, mediating between students, parents, and teachers, working with administration to help correct behavioral issues in students, helping 8th graders develop four-year plans for high school, connecting tutors to classrooms, teachers, and needy students . . . the list goes on. Cindy has a wealth of knowledge about school dynamics!
 
@@ -72,7 +72,7 @@ I talked with Cindy and picked her brain on some important topics I gained expos
 
 It turns out that above and beyond any factor, stability at home plays the biggest role in grade students’ lives. This surprised me; I thought that money would be the most important factor, and while it’s closely tied to stability of the home life, as a lot of struggling families are [more likely to have instability issues at home](http://www.apa.org/pi/ses/resources/publications/education.aspx), it can affect students from wealthier backgrounds, too.
 
-Another important thing to note is that schools are inheriting kids who are already significantly behind their peers academically. It’s already been demonstrated that [learning starts well before the time students enter grade school](http://www.apa.org/pi/ses/resources/publications/education.aspx). By the time they reach Cindy’s and the other counselor’s radar, they’ve potentially been trying to catch up for *years*. At CMS, the school works closely with these students, trying very hard to raise them to grade level through remedial reading and math classes (Read 180 and Math 180) and tutoring, because their 9th grade year will be the prime time they’ll drop out of grade school.
+Another important thing to note is that schools are inheriting kids who are already significantly behind their peers academically. It’s already been demonstrated that [learning starts well before the time students enter grade school](http://www.apa.org/pi/ses/resources/publications/education.aspx). By the time they reach the CMS counselors' radar, they’ve potentially been trying to catch up for *years*. At CMS, the school works closely with these students, trying very hard to raise them to grade level through remedial reading and math classes (Read 180 and Math 180) and tutoring, because their 9th grade year will be the prime time they’ll drop out of grade school.
 
 So with such complicated issues, how can we help these students better? Does the answer lie in pre-grade school programs like [Head Start](https://www.acf.hhs.gov/ohs)? Do we send these students to trade schools so we don’t push college on them if they aren’t college-bound? Do we ditch standardization and develop a wide range of measuring sticks—evaluations that don’t necessarily tell a non-academic student that they’re a failure because they aren’t doing well in classes? Do we focus on teaching them work skills that may be more practical?
 
