@@ -23,6 +23,6 @@ We want to make education so standardized, so much the “same,” but right now
 
 Take it with a grain of salt since it’s just a social media comment stream, but think about how many times you’ve heard someone say, “I came from a really good school” or “I came from a really bad school.” There’s a great discrepancy implied there.
 
-Even in my own region, I went to the “good” school, and there was a “bad” school less than 10 miles away (check out my blog post about that: (I'll insert this link once I get the 4th medium post onto the internet)), whose attendees came from, on average, much poorer families, and were (and still are today) more likely to find themselves behind academically, perform worse on state standardized tests, and drop out of high school, usually during their freshman year.
+Even in my own region, I went to the “good” school, and there was a “bad” school less than 10 miles away (check out my blog post about that: [The Next Town Over](https://medium.com/@embarkwebsite/the-next-town-over-b04bf6b306d4)), whose attendees came from, on average, much poorer families, and were (and still are today) more likely to find themselves behind academically, perform worse on state standardized tests, and drop out of high school, usually during their freshman year.
 
 It’s astonishing how we can be so “standard” and yet so different, isn’t it?
